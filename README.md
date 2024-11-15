@@ -1,1 +1,1 @@
-bu bir tesetttitiititittiti
+Tüm hakları saklıdır
